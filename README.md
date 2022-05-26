@@ -1,5 +1,8 @@
 # Sobre mim 
 
+Meu nome é:jOSE GUILHERME FROTTE 
+Meu e-mail:ASSIS.JOSE@ESCOLA.PR.GOV.BR 
+Meu interesse é:carro caminhao e fazenda 
 
 ![bitmoji](https://user-images.githubusercontent.com/105867215/169318460-aabf4038-db5f-4cbd-a45b-b982f62bf067.png)
  
